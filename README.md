@@ -196,9 +196,6 @@ AI/ML Engineer | Data Analyst | Machine Learning Enthusiast
 
 📧 Email: Rudratripathi3773@gmail.com
 
-💼 LinkedIn: *(Add your LinkedIn Profile)*
-
-🐙 GitHub: *(Add your GitHub Profile)*
 
 ---
 
